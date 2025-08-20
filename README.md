@@ -1,1 +1,1 @@
-# Kho-L-u-Tr-lo-i-1
+# Kho-1
